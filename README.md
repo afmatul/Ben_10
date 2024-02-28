@@ -1,10 +1,11 @@
 # Ben 10
  Ben 10 mi serie favorita de TV
 ## Razones por las que me gusta Ben 10 
- Me gusta Ben 10 porque es una serie muy creativa por la gran variedad que hay de aliens en los que se puede transformar Ben, esta serie combina de muy buena manera la acción con lo cómico, por lo que me hace sentir emocionado por las peleas así como me hace reír por los chiste o bromas que se hacen 🤣, otra de las razones por las que me gusta esta serie es por la idea que se tiene de que con un reloj, que es el Omnitrix, Ben se pueda transformar en muchos aliens 👽
+ Me gusta Ben 10 porque es una serie muy creativa por la gran variedad que hay de aliens en los que se puede transformar Ben, esta serie combina de muy buena manera la acción con lo cómico, por lo que me hace sentir emocionado por las peleas así como me hace reír por los chiste o bromas que se hacen 🤣, otra de las razones por las que me gusta esta serie es por la idea que se tiene de que con un reloj, que es el Omnitrix, Ben se pueda transformar en muchos aliens 👽👹
 
  ## Series de Ben 10
  Existieron varias series de Ben 10 que se desarrollaron en la misma línea de tiempo ⌛, es decir que son el mismo Ben, estas series son Ben 10, Ben 10: Alien Force y Ben 10: Omniverse.
+
 
 ![La primera serie de Ben 10](https://i.pinimg.com/originals/78/69/12/78691203b08b1e178278ac0c01dd3966.jpg)
 
@@ -35,5 +36,5 @@
 
 
 
- Para más información puede visitar el siguiente enlace [Ben 10](https://es.wikipedia.org/wiki/Ben_10) 
+ Para más información puede visitar el siguiente enlace: [Ben 10](https://es.wikipedia.org/wiki/Ben_10) 
 
