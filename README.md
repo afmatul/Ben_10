@@ -6,11 +6,11 @@
  ## Series de Ben 10
  Existieron varias series de Ben 10 que se desarrollaron en la misma línea de tiempo ⌛, es decir que son el mismo Ben, estas series son Ben 10, Ben 10: Alien Force y Ben 10: Omniverse.
 
-![La primera serie de Ben 10](https://www.google.com/url?sa=i&url=https%3A%2F%2Fsincroguia-tv.expansion.com%2Fprogramacion-series%2Fben-10&psig=AOvVaw0Snzocaq-IqdTSDasVnl8I&ust=1709219144907000&source=images&cd=vfe&opi=89978449&ved=0CBIQjRxqFwoTCKiqrdKnzoQDFQAAAAAdAAAAABAE)
+![La primera serie de Ben 10](https://i.pinimg.com/originals/78/69/12/78691203b08b1e178278ac0c01dd3966.jpg)
 
-![Ben 10 Alien Force](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.primevideo.com%2F-%2Fes%2Fdetail%2FBen-10-Alien-Force%2F0JVNUMSABUE2SIFWZ7L034RSQI&psig=AOvVaw2pwaid5xP4ZOzYceoQ1wyB&ust=1709220087209000&source=images&cd=vfe&opi=89978449&ved=0CBIQjRxqFwoTCMiypJSrzoQDFQAAAAAdAAAAABAE)
+![Ben 10 Alien Force](https://m.media-amazon.com/images/S/pv-target-images/e3a4184994bea8c0f84601ce2b4e7c1055f6e44c01704f8a213d227a990f6333.jpg)
 
-![Ben 10 Alien Force](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.primevideo.com%2F-%2Fes%2Fdetail%2FBen-10-Alien-Force%2F0JVNUMSABUE2SIFWZ7L034RSQI&psig=AOvVaw2pwaid5xP4ZOzYceoQ1wyB&ust=1709220087209000&source=images&cd=vfe&opi=89978449&ved=0CBIQjRxqFwoTCMiypJSrzoQDFQAAAAAdAAAAABAE)
+![Ben 10 Omniverse](https://static.wikia.nocookie.net/doblaje/images/f/f2/Ben-10-omniverse.jpg/revision/latest?cb=20180902121412&path-prefix=es)
 
 ## Aliens en los que se podía transformar Ben
  1. Algunos aliens en los que se podía transformar Ben
