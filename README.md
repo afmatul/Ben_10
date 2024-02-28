@@ -15,24 +15,24 @@
 
 ## Aliens en los que se podía transformar Ben
  1. Algunos aliens en los que se podía transformar Ben
-  -Ben 10 (clásico)
-   -Fuego 🔥
-   -Diamante 💎
-   -Cannonbolt
-   -XLR8
-   -Cuatro brazos 💪
-  -Ben 10 (Alien force)
-   -Fuego Pantanoso
-   -Humungosaurio
-   -Eco eco
-   -Goop 
-   -Jetray
-  -Ben 10 (Omniverse)
-   -Atomix ☢️
-   -Bloxx
-   -Bullfrag 🐸
-   -Feedback ⚡
-   -Astrodactyl
+    - Ben 10 (clásico)
+      - Fuego 🔥
+      - Diamante 💎
+      - Cannonbolt
+      - XLR8
+      - Cuatro brazos 💪
+    - Ben 10 (Alien force)
+      - Fuego Pantanoso
+      - Humungosaurio
+      - Eco eco
+      - Goop 
+      - Jetray
+    - Ben 10 (Omniverse)
+      - Atomix ☢️
+      - Bloxx
+      - Bullfrag 🐸
+      - Feedback ⚡
+      - Astrodactyl
 
 
 
